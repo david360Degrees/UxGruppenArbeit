@@ -1,2 +1,2 @@
 # UxGruppenArbeit
-Mitglieder: David, Karina, Johhanna, Valeria
+Mitglieder: David, Karina, Johhana, Valeria
